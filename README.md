@@ -12,7 +12,7 @@ Motieven, waar ga en sta ik voor?:
 
 Werk, waar ben ik het beste op mijn plek?:
 1. scan(brief aan mentor)
-2. 
+2. doel
 
 Loopbaan, hoe bereik ik mijn doel?:
 1. planning
